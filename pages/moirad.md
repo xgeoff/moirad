@@ -1,10 +1,10 @@
 
-### *The Moirad, Song of the Fates and The Trojan War*
+### *The Moirad, A Song of the Fates and The Trojan War*
 
 **Book I: The Council of Zeus**
 
 In bright Olympus, crowned by heavens high,  
-The father of gods, great Zeus, in shadows deep,  
+The father of gods, great Zeus, in shadows nigh,  
 Sat on his throne, his brow furrowed by fate,  
 The world below in balance, poised to break.  
 Beside him stood wise Themis, just and clear,  
@@ -35,23 +35,24 @@ A wedding feast began with joy and lore.
 The hero Peleus, chosen by the gods,  
 Wed Thetis, queen of Nereids, far and broad.  
 The mortal and divine entwined as one,  
-As silver waves embraced the golden sun.  
+As silver waves embraced the golden sun.
+
 The gods descended, bringing gifts of grace,  
 To honor Peleus and his bride’s embrace.
-
 Apollo’s lyre sang sweet beneath the moon,  
 And Artemis adorned her hair with bloom.  
 But one was slighted, Eris, goddess grim,  
-Whose heart was cold as shadows deep and dim.  
+Whose heart was cold as shadows deep and dim.
+
 Spurned from the feast, she cast a deadly snare,  
-A golden apple, gleaming bright and fair.  
+A golden apple, gleaming bright and fair.
 "To the fairest," its simple script declared,  
 And thus the seeds of discord were prepared.
-
 Three goddesses arose with heated pride—  
-Queen Hera, and Athena, war's stern guide,  
+Queen Hera, and Athena, war's stern guide,
+
 And lovely Aphrodite, love’s soft breath,  
-Each claimed the prize that led to war and death.  
+Each claimed the prize that led to war and death.
 Before the gods, they cried for Zeus' decree,  
 But wisely he refused this choice to see.  
 "Let Paris, prince of Troy, decide your fate,  
@@ -116,14 +117,15 @@ For kings and warriors to cast off doubt.
 From Sparta, Argos, Athens, lands so wide,  
 The summons spread, and all the Greeks did ride.  
 With spear and shield, with chariot and flame,  
-They gathered to the cause of Troy’s famed shame.  
+They gathered to the cause of Troy’s famed shame.
+
 Achilles came, with Myrmidonian band,  
 Patroclus at his side, both brave and grand.  
 And from the isles, the archer kings set sail,  
 Odysseus, wily, with his ships pale.
-
 From Ithaca’s fair shores, he heard the call,  
-Though hearth and home had bound his heart in thrall.  
+Though hearth and home had bound his heart in thrall.
+
 But now his mind was sharp with warlike schemes,  
 For Troy, he knew, would not fall through dreams.  
 Diomedes came, the Argive prince of fame,  
@@ -178,10 +180,10 @@ Announced to Troy that fate was drawing near.
 But Hector, noble prince, stood firm in guard,  
 The walls of Troy would not be breached or marred.  
 His armor gleamed, his spear was swift as flame,  
-The Trojans rallied at their hero’s name.  
+The Trojans rallied at their hero’s name.
+
 For Paris, too, though cause of war and grief,  
 Took arms to prove his worth, though all was brief.
-
 The first day saw the Greeks advance with pride,  
 But Trojans held their ground, their loss denied.  
 Yet soon the years would stretch, a war unkind,  
@@ -217,7 +219,7 @@ His words unheeded, and the seeds of woe.
 Thus failed the Greeks’ last bid to halt the fight,  
 And war would reign beneath both day and night.
 
-**Book IX: Renewed Clash Upon the Sands
+**Book IX: Renewed Clash Upon the Sands**
 
 The Greeks had landed on the Trojan shore,
 Their ships drawn up, their oars now still once more.
@@ -318,105 +320,163 @@ In the shadows of battle, his courage would shine,
 A beacon of hope in the ruins of time.
 
 **Book XI: The Sacking of Neighboring Cities
-
 In those first days, when war’s bright fury soared,
 The Greeks struck Troy, a tempest forged in swords.
-Beneath the sun’s fierce, golden gaze,  
-They sought to seize the prize, the spoils of their blaze.
+Beneath the sun’s fierce, golden, watching gaze,
+They sought to seize the spoils of fire and blaze.
+No peace they sought, nor mercy’s fleeting breath,
+But glory carved in flame and shadowed death.
 
-Achilles, swift as the eagle’s flight,  
-Led forth his Myrmidons, hearts burning bright.  
-With shields that gleamed like the morning sun,  
-They marched toward Lyrnessus, their fates begun.
+Achilles, swift as eagle’s wing in flight,
+Led forth his Myrmidons, hearts burning bright.
+With shields that gleamed like dawn upon the plain,
+They marched through smoke and ash and warlike strain.
+The cry of trumpets split the morning air,
+And men beheld that doom itself was there.
 
-The walls rose high, but trembled in fear,  
-For the wrath of Achilles drew ever near.  
-With spear in hand and rage in his chest,  
-He dashed through the gates, an unyielding quest.
+The walls rose high, yet trembled at his tread,
+For wrath of gods seemed in his footsteps spread.
+With spear in hand and fury in his breast,
+He stormed the gates, by no restraint suppressed.
+The clash of bronze resounded through the field,
+And all before his might were forced to yield.
 
-King Mynes stood tall, a lion in pride,  
-But Achilles, relentless, would not be denied.  
-With a mighty thrust, his spear found its mark,  
-And the echoes of death rang clear in the dark.
+King Mynes stood, a lion crowned in pride,
+Yet none could turn Achilles from his stride.
+Their spears did ring, their shields with thunder sang,
+Till death’s cold voice through Lyrnessus rang.
+The victor stood amid the crimson rain,
+And silence fell upon the heaps of slain.
 
-Lyrnessus fell, a blaze in the night,  
-As flames licked the walls, a terrible sight.  
-Briseis was taken, a prize of his fight,  
-While the Myrmidons cheered, their spirits alight.
+Lyrnessus burned, its towers a pyre of flame,
+Its streets a grave, its ruin now his fame.
+Briseis, fair as dawn on ocean’s crest,
+Was taken captive, sorrow in her breast.
+The Myrmidons, their armor stained with red,
+Raised up their cries to honor those now dead.
 
-Through Pedasus next, they cut their swift path,  
-The cries of the fallen igniting their wrath.  
-With every step, the glory grew bright,  
-As the Greek forces claimed victory by night.
+Through Pedasus next, they carved their bloody way,
+And cities fell beneath the light of day.
+The cries of dying men filled earth and sky,
+Their fates sealed fast where heroes came to die.
+Each conquest blazed, each triumph fed the lore,
+Of Greece’s wrath that swept from shore to shore.
 
 **Book XII: First Assault on the Walls**
 
-The siege’s dawn broke fierce and burning red, 
-The sun, a watchful eye o’er countless dead.  
-The Greeks, impatient, pressed against the gate,  
-Determined now to break Troy’s fateful state.  
-With spear in hand, the mighty Ajax rose,  
-His towering frame a shield against his foes.  
-Beside him charged brave Diomedes, fierce,  
-Whose blade and spear were sharp enough to pierce.
+The siege’s dawn broke fierce and burning red,
+The sun, a watchful eye o’er countless dead.
+The Greeks, impatient, gathered on the field,
+With bronze-clad hearts and shields they would not yield.
+They swore by gods that Troy should fall that day,
+And rushed to arms to force the walls away.
 
-A call to arms spread wide through Greece's camp,  
-Their leaders now with eyes of fire and damp.  
-“We break their walls!” cried Agamemnon's voice,  
-“For only in their fall do we rejoice!”  
-The Trojans, high on battlements and towers,  
-Prepared for yet another test of powers.
+With spear in hand, great Ajax took the lead,
+His frame a tower, born of warlike breed.
+Beside him strode brave Diomedes, strong,
+Whose blade had sung of valor loud and long.
+Their battle cries rolled thunder through the plain,
+A roar that shook the towers of Ilium’s reign.
 
-Then rushed the Greeks, their war cries like a wave,  
-Determined all to seek either death or save.  
-With shields like polished bronze, they stormed the field,  
-Their swords and spears aloft, their fates unsealed.  
-The gates of Troy shook hard beneath the blow,  
-As Ajax struck and laid the foe below.
+“Now break their gates!” cried Agamemnon’s voice,
+“For only in their fall shall we rejoice!
+No peace for Troy, whose theft brought shame to Greece—
+No rest until her burning brings release!”
+Their banners rose, their chariots flashed with flame,
+And every heart beat wild with death and fame.
 
-Upon the battlements, the archers drew,  
-A rain of arrows swift and black that flew.  
-The Greeks fell hard beneath the sharp refrain,  
-But still they pressed with numbers vast and main.  
-At last, they neared the walls of stone so bright,  
-But Hector stood, the Trojans’ strongest might.
+The Trojans watched from battlements of stone,
+Their courage steeled, their fear to none made known.
+With Hector at their head, both fierce and sure,
+They swore their walls and honor to endure.
+His voice rang high above the city’s din,
+“Hold fast, my sons! Let none of Greece come in!”
 
-With shield and sword, he barred their way,  
-His eyes like flames, his heart like tempered clay.  
-Each foe he felled with spear and slash of sword,  
-His breath a gale, his strength in waves outpoured.  
-Around him rallied Trojan men in throngs,  
-Their voices raised in hymns of ancient songs.
+Then surged the Greeks, their shields a shining wave,
+Each man prepared to conquer or to brave.
+Their spears flew high, their arrows dark as night,
+The plain became a sea of death and fight.
+The gates of Troy shook hard beneath their blows,
+As Ajax struck and laid his fearsome foes.
 
-For though the Greeks were strong, their courage wide,  
-Troy’s walls remained, their entrance still denied.  
-The battle raged until the night’s embrace,  
-When weary soldiers found their resting place.  
-And thus, the first great storm upon the gate,  
-Had come and gone, leaving Troy to fate.
+Upon the walls, the archers bent their bows,
+A rain of death descending on their foes.
+The clang of bronze and cries of dying men
+Rose up to heaven and fell to earth again.
+Blood darkened soil beneath the midday glare,
+And smoke entwined with shouts of war and prayer.
 
-**Book XIII: The Duel of Paris and Menelaus
+Still Hector stood, unyielding in his might,
+His spear a lightning flash, his eyes alight.
+Each foe he met fell broken at his feet,
+For none could match his fury’s deadly beat.
+Around him surged his brothers and his band,
+The heart of Troy, the shield of Ilion’s land.
 
-When dawn kissed the hills and the banners unfurled,  
-The truce was proposed, and hope was unfurled.  
-For Paris, the prince, with a heart full of shame,  
-Offered his life for the loss of his name.  
-Menelaus, the king, stood proud at his side,  
-His heart burning fiercely, with love as his guide.
+Though Greeks pressed hard and many heroes bled,
+The Trojan gates stood firm, the city sped.
+The day grew long, and dusk’s soft hand drew near,
+As dying embers whispered through the spear.
+The weary hosts withdrew as shadows fell,
+And left the field where countless heroes dwell.
 
-They met on the field, like two stars in the night,  
-With swords drawn and ready, prepared for the fight.  
-The clang of their steel rang out like a song,  
-As the fate of their nations rested on strong.  
-But Paris, though clever, lacked courage this day,  
-As Menelaus struck true, sending him away.
+Thus came and passed the first great storm of war,
+The clash of nations, blood from shore to shore.
+Though Greece struck hard, Troy’s ramparts would not break—
+Her strength endured, her fate not yet to take.
+So gods looked down and knew the threads were spun,
+The war had only now begun to run.
 
-The spear pierced the air, but the goddess did swoop,  
-And whisked Paris away from the vengeful king’s loop.  
-The truce was now shattered, the bloodlust returned,  
-And the fires of battle in every heart burned.  
-For the duel had proved that not all would be still,  
-As the war stretched on, driven by fate’s cruel will.
+**Book XIII: The Duel of Paris and Menelaus**
+
+When dawn’s first light spread gold across the plain,
+The weary hosts set down their spears again.
+A truce was called, and peace was briefly known,
+As kings and princes met before the throne.
+For Paris, shamed yet proud, stepped forth to stand,
+And offered single combat hand to hand.
+
+“Let none but I atone for Helen’s wrong,”
+He cried aloud before the gathered throng.
+“Her beauty was my choice, her love my fate—
+Let blood decide, and end this long debate.”
+Menelaus rose, his heart a blazing brand,
+His eyes like fire, his sword already in hand.
+
+They met between the armies, still and vast,
+Two lions bound by memory of the past.
+The clash of bronze rang loud across the field,
+Each blow a vow that neither man would yield.
+Their shields were struck, their helms in splinters torn,
+And gods looked down on mortals pride-borne.
+
+Athena watched with steady, guiding gaze,
+While Aphrodite schemed through smoke and haze.
+Each goddess strove to guard her chosen side,
+Their rival wills across the sky did ride.
+And when the tide of battle turned once more,
+The air was filled with echoes of their war.
+
+Then Menelaus struck with deadly might,
+His spear a bolt that blazed in morning light.
+It pierced the shield, it grazed the Trojan’s hair,
+And all the Greeks cried out in triumph there.
+But Aphrodite shrouded Paris fast,
+And bore him off before the fatal cast.
+
+The Greeks beheld the empty, bloodied ground,
+Their shouts of joy now changed to anger’s sound.
+For peace was lost, the truce dissolved in flame,
+And once again the war consumed its name.
+The Trojans, roused by gods’ deceitful will,
+Took up their arms, and blood would flow until—
+
+The plains of Ilium ran red once more,
+As thunder rolled along the distant shore.
+The broken pact lay trampled in the sand,
+While Zeus looked on, unmoved, with steady hand.
+The Fates resumed their weaving dark and deep,
+And Troy and Greece returned to restless sleep.
 
 **Book XIV: The Gathering of Allies**
 
@@ -560,7 +620,7 @@ For Agamemnon, king of swollen pride,
 Would claim Achilles’ spoils without remorse,  
 And tensions grew as war took further course.
 
-**Book XIX: Achilles’ Exploits and Conquests
+**Book XIX: Achilles’ Exploits and Conquests**
 
 Across the plains where the shadows loom,  
 Achilles marched forth, a harbinger of doom.  
@@ -748,3 +808,19 @@ And cracks appeared where once their hearts were true.
 
 The war itself was tearing them apart,  
 And Greek unity was a fragile heart.
+
+**Epilogue: The Loom of Fate**
+
+From high Olympus’ peaks the thunder rolled,
+And Zeus beheld what mortal hearts had told.
+The war he willed now smoldered in its prime,
+Its end unseen, yet written deep in time.
+The Fates, their shuttles weaving slow and sure,
+Prepared the thread of wrath the world must endure.
+
+For soon would rise the song the Muses keep—
+Of rage, of loss, of kings who sow and reap.
+But for this tale, the threads are bound complete,
+The gods withdraw, the mortal pulse grows sweet.
+The sea winds sigh, the fires of Troy still burn,
+And to the Iliad’s dawn the ages turn.
