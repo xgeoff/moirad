@@ -168,7 +168,7 @@ And winds arose, no longer bound in sleep.
 The Greeks set sail, their ships like stars in flight,  
 Toward Troy’s proud walls, beneath the moon’s cold light.
 
-### Book VII: The Greeks Land at Troy**
+** Book VII: The Greeks Land at Troy**
 
 The dawn broke bright as Troy’s shores came in sight,  
 A golden city bathed in morning’s light.  
@@ -321,7 +321,8 @@ Yet his spirit endured, a flame in the soul.
 In the shadows of battle, his courage would shine,  
 A beacon of hope in the ruins of time.
 
-**Book XI: The Sacking of Neighboring Cities
+**Book XI: The Sacking of Neighboring Cities**
+
 In those first days, when war’s bright fury soared,
 The Greeks struck Troy, a tempest forged in swords.
 Beneath the sun’s fierce, golden, watching gaze,
