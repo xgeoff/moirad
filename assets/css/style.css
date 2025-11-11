@@ -78,4 +78,6 @@
   .prose pre { background: #1a1a1b; }
   .prose table th, .prose table td { border-top-color: #2a2a2a; }
 }
-
+@media (max-width: 640px){
+    font-size: 0.95rem;    /* readable on mobile */
+}
