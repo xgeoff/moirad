@@ -1,4 +1,6 @@
-
+---
+title = "The Moirad, A Song of the Fates and The Trojan War"
+---
 ### *The Moirad, A Song of the Fates and The Trojan War*
 
 **Book I: The Council of Zeus**
