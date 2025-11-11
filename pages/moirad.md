@@ -168,7 +168,7 @@ And winds arose, no longer bound in sleep.
 The Greeks set sail, their ships like stars in flight,  
 Toward Troy’s proud walls, beneath the moon’s cold light.  
 
-** Book VII: The Greeks Land at Troy**
+**Book VII: The Greeks Land at Troy**
 
 The dawn broke bright as Troy’s shores came in sight,  
 A golden city bathed in morning’s light.  
@@ -291,7 +291,7 @@ As war’s first song rang loud upon their ears.
 The gods above watched from their thrones of gold,  
 For now the war had truly taken hold.  
 
-**Book X: The Death of Protesilaus
+**Book X: The Death of Protesilaus**
 
 Among the brave ranks, one stood proud and tall,    
 Protesilaus, destined to fall.  
