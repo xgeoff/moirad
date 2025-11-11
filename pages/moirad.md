@@ -40,25 +40,25 @@ The mortal and divine entwined as one,
 As silver waves embraced the golden sun.
 
 The gods descended, bringing gifts of grace,  
-To honor Peleus and his bride’s embrace.
+To honor Peleus and his bride’s embrace.   
 Apollo’s lyre sang sweet beneath the moon,  
 And Artemis adorned her hair with bloom.  
-But one was slighted, Eris, goddess grim,  
-Whose heart was cold as shadows deep and dim.
+But one was slighted, Eris, goddess grim,    
+Whose heart was cold as shadows deep and dim.  
 
 Spurned from the feast, she cast a deadly snare,  
-A golden apple, gleaming bright and fair.
+A golden apple, gleaming bright and fair.  
 "To the fairest," its simple script declared,  
-And thus the seeds of discord were prepared.
+And thus the seeds of discord were prepared.  
 Three goddesses arose with heated pride—  
-Queen Hera, and Athena, war's stern guide,
+Queen Hera, and Athena, war's stern guide,  
 
 And lovely Aphrodite, love’s soft breath,  
-Each claimed the prize that led to war and death.
+Each claimed the prize that led to war and death.  
 Before the gods, they cried for Zeus' decree,  
 But wisely he refused this choice to see.  
 "Let Paris, prince of Troy, decide your fate,  
-For he shall judge who holds the fairest state."
+For he shall judge who holds the fairest state."  
 
 **Book III: The Judgment of Paris**
 
@@ -69,7 +69,7 @@ He lived in peace, removed from royal mirth.
 One day the goddesses appeared in light,  
 Their forms aglow, a vision pure and bright.  
 They offered gifts to win his mortal mind,  
-Each promise steeped in power, strong and kind.
+Each promise steeped in power, strong and kind.  
 
 Proud Hera spoke of kingdoms vast and wide,  
 "All power in the world shall be your guide."  
@@ -78,14 +78,14 @@ Athena promised wisdom, sharp as spears,
 But Aphrodite, smiling soft and sweet,  
 Offered a prize no mortal could defeat:  
 "The fairest woman of the earth shall be  
-Yours to possess in love eternally."
+Yours to possess in love eternally."  
 
 Paris, in youthful folly, chose desire,  
 And Aphrodite’s prize lit passion's fire.  
 Thus Helen, wife of Sparta's king renowned,  
 Would soon be claimed, and mighty Troy unbound.  
 The seeds of war were sown in golden dust,  
-As love and lust led men to fate unjust.
+As love and lust led men to fate unjust.  
 
 **Book IV: The Gathering Storm**
 
@@ -96,21 +96,21 @@ For soon would come the breaking of the heart.
 In Menelaus’ halls, his wife so fair,  
 Did Paris glimpse her beauty, rich and rare.  
 A spark ignited, kindling through the night,  
-And Helen’s gaze returned his burning light.
+And Helen’s gaze returned his burning light.  
 
 With Aphrodite’s charm, they fled the court,  
 To Troy’s high walls, her beauty now his fort.  
 But in their wake, the winds of war did rise,  
 As Menelaus, wronged, sought vengeance wide.  
 To mighty Agamemnon, king and peer,  
-He turned, his brother’s wrath both loud and clear.
+He turned, his brother’s wrath both loud and clear.  
 
 "Let all the Greeks unite beneath my hand,  
 We’ll bring our armies to fair Troy’s proud land.  
 For Helen’s theft, we’ll strike with sword and spear,  
 And burn their city down in fire and fear."  
 Thus, Agamemnon called the banners high,  
-The kings of Greece prepared their ships to fly.
+The kings of Greece prepared their ships to fly.  
 
 **Book V: The Call to Arms**
 
@@ -119,28 +119,28 @@ For kings and warriors to cast off doubt.
 From Sparta, Argos, Athens, lands so wide,  
 The summons spread, and all the Greeks did ride.  
 With spear and shield, with chariot and flame,  
-They gathered to the cause of Troy’s famed shame.
+They gathered to the cause of Troy’s famed shame.  
 
 Achilles came, with Myrmidonian band,  
 Patroclus at his side, both brave and grand.  
 And from the isles, the archer kings set sail,  
-Odysseus, wily, with his ships pale.
+Odysseus, wily, with his ships pale.  
 From Ithaca’s fair shores, he heard the call,  
-Though hearth and home had bound his heart in thrall.
+Though hearth and home had bound his heart in thrall.  
 
 But now his mind was sharp with warlike schemes,  
 For Troy, he knew, would not fall through dreams.  
 Diomedes came, the Argive prince of fame,  
 And Ajax, giant born, with unbowed frame.  
 The fleet did swell with warriors bright and bold,  
-Their oars and banners tipped with shining gold.
+Their oars and banners tipped with shining gold.  
 
 Thus Agamemnon, king of Mycenae,  
 Led all the Greeks to war upon the sea.  
 A thousand ships cut through the silver tide,  
 Their prows like blades that hewed the ocean wide.  
 In Aulis’ port they gathered, strong and fierce,  
-The gods looked down, their will to soon coerce.
+The gods looked down, their will to soon coerce.  
 
 **Book VI: The Sacrifice to Artemis**
 
@@ -149,24 +149,24 @@ For Artemis held still the sea and land.
 Her wrath, a bitter gust, denied their way,  
 And ships stood stranded for many a day.  
 In anger rose the sons of Greece’s kings,  
-For what could halt their force, their sharpened wings?
+For what could halt their force, their sharpened wings?  
 
 Then Calchas, seer, his eyes ablaze with sight,  
 Spoke solemn words beneath the starlit night:  
 "A price is owed to calm the goddess’ heart,  
 A sacrifice to tear her wrath apart.  
 Iphigenia, daughter pure and true,  
-Must bleed for winds to rise and pass us through."
+Must bleed for winds to rise and pass us through."  
 
 The men stood still, their eyes upon the king,  
 For Agamemnon bore the bitter sting.  
 Yet duty bound, he led his child to fate,  
 His heart a stone beneath the gods’ great weight.  
 With trembling hand, the blade did fall and weep,  
-And winds arose, no longer bound in sleep.
+And winds arose, no longer bound in sleep.  
 
 The Greeks set sail, their ships like stars in flight,  
-Toward Troy’s proud walls, beneath the moon’s cold light.
+Toward Troy’s proud walls, beneath the moon’s cold light.  
 
 ** Book VII: The Greeks Land at Troy**
 
@@ -175,21 +175,21 @@ A golden city bathed in morning’s light.
 The Greeks, with fury sharpened in their breast,  
 Prepared for war, their bodies hard with zest.  
 The ships did land, their hulls upon the sand,  
-And soldiers leapt to seize the Trojan land.
+And soldiers leapt to seize the Trojan land.  
 
 The clash of shields, the ringing of the spear,  
 Announced to Troy that fate was drawing near.  
 But Hector, noble prince, stood firm in guard,  
 The walls of Troy would not be breached or marred.  
 His armor gleamed, his spear was swift as flame,  
-The Trojans rallied at their hero’s name.
+The Trojans rallied at their hero’s name.  
 
 For Paris, too, though cause of war and grief,  
-Took arms to prove his worth, though all was brief.
+Took arms to prove his worth, though all was brief.  
 The first day saw the Greeks advance with pride,  
 But Trojans held their ground, their loss denied.  
 Yet soon the years would stretch, a war unkind,  
-For both great hosts were equally aligned.
+For both great hosts were equally aligned.  
 
 **Book VIII: The Failed Embassy to Troy**
 
@@ -198,114 +198,114 @@ The Greeks, in wisdom, sent an envoy fair.
 Odysseus, the wily, wise, and sly,  
 And Menelaus, Helen’s husband high,  
 Did cross the field of battle to the gate,  
-In hopes that peace might come before too late.
+In hopes that peace might come before too late.  
 
 Before old Priam’s throne, they made their plea:  
 “Return fair Helen, set your city free.  
-This war need not lay waste to time and place,
-If Paris yields and gives back Helen’s grace.
+This war need not lay waste to time and place,  
+If Paris yields and gives back Helen’s grace.  
 Odysseus spoke with words both sharp and clear,  
-His honeyed tongue meant to dispel all fear.
+His honeyed tongue meant to dispel all fear.  
 
 King Priam, wise of age and grayed with years,  
 Listened close, his heart tugged by their fears.  
 Yet Paris, bold, his pride inflamed anew,  
 Refused to yield, his words both cold and true.  
 “Not for Greece, nor for their wrathful king,  
-Shall I give back the prize that love did bring.”
+Shall I give back the prize that love did bring.”  
 
 Though Priam’s heart was torn with doubt and pain,  
 The will of Paris held, and so remained.  
 With heavy heart, Odysseus turned to go,  
 His words unheeded, and the seeds of woe.  
 Thus failed the Greeks’ last bid to halt the fight,  
-And war would reign beneath both day and night.
+And war would reign beneath both day and night.  
 
 **Book IX: Renewed Clash Upon the Sands**
 
-The Greeks had landed on the Trojan shore,
-Their ships drawn up, their oars now still once more.
-With bronze-clad warriors marching from the ships,
-Their spears and shields in hand, firm on their lips.
-The embassy to Priam now had failed,
-And war, its flames ignited, had prevailed.
+The Greeks had landed on the Trojan shore,  
+Their ships drawn up, their oars now still once more.  
+With bronze-clad warriors marching from the ships,  
+Their spears and shields in hand, firm on their lips.  
+The embassy to Priam now had failed,  
+And war, its flames ignited, had prevailed.  
 
-As dawn broke bright upon the bloody sand,
-Agamemnon called his captains, firm in hand.
-He stood upon the shore, his voice a roar,
-“Now, sons of Greece, we break through Troy’s high door.
-The time for peace has fled like fading dreams,
-Today, the blood of Trojans feeds the streams.”
+As dawn broke bright upon the bloody sand,  
+Agamemnon called his captains, firm in hand.  
+He stood upon the shore, his voice a roar,  
+“Now, sons of Greece, we break through Troy’s high door.  
+The time for peace has fled like fading dreams,  
+Today, the blood of Trojans feeds the streams.”  
 
-Beside him stood the heroes, proud and true,
-Menelaus, heart burning with a view
-Of Helen’s face, still held within the walls,
-And Ajax, tall and broad, who heeds no calls
-To mercy—only battle fills his sight,
-As Greece prepares to face the coming fight.
+Beside him stood the heroes, proud and true,  
+Menelaus, heart burning with a view  
+Of Helen’s face, still held within the walls,  
+And Ajax, tall and broad, who heeds no calls  
+To mercy—only battle fills his sight,  
+As Greece prepares to face the coming fight.  
 
-The armies formed, with shields aligned as one,
-Their armor gleaming ‘neath the rising sun.
-A hundred thousand strong, they lined the shore,
-Their voices raised, a battle hymn, a roar.
-And from the gates of Troy came Hector’s host,
-With banners flying, each man at his post.
+The armies formed, with shields aligned as one,  
+Their armor gleaming ‘neath the rising sun.  
+A hundred thousand strong, they lined the shore,  
+Their voices raised, a battle hymn, a roar.  
+And from the gates of Troy came Hector’s host,  
+With banners flying, each man at his post.  
 
-The first to meet them, swift across the plain,
-Was Hector, prince of Troy, without disdain.
-He led his men with valor in his eyes,
-A warrior, where honor never dies.
-Behind him came the Trojans, proud and strong,
-Their spears in hand, their chariots drawn along.
+The first to meet them, swift across the plain,  
+Was Hector, prince of Troy, without disdain.  
+He led his men with valor in his eyes,  
+A warrior, where honor never dies.  
+Behind him came the Trojans, proud and strong,  
+Their spears in hand, their chariots drawn along.  
 
-The battle met in clouds of dust and screams,
-As spears were thrust and arrows split the seams.
-The clash of shields, the clang of swords on stone,
-The earth itself did tremble with a groan.
-Hector and Ajax first exchanged their blows,
-Two giants clashing, caught as bitter foes.
+The battle met in clouds of dust and screams,  
+As spears were thrust and arrows split the seams.  
+The clash of shields, the clang of swords on stone,  
+The earth itself did tremble with a groan.  
+Hector and Ajax first exchanged their blows,  
+Two giants clashing, caught as bitter foes.  
 
-With spear in hand, great Ajax struck out first,
-His strength like mountain winds in sudden burst.
-But Hector, swift of foot and sure of hand,
-Parried the blow and drove him from the sand.
-Their shields collided, bronze on bronze so loud,
-The sound like thunder echoed through the crowd.
+With spear in hand, great Ajax struck out first,  
+His strength like mountain winds in sudden burst.  
+But Hector, swift of foot and sure of hand,  
+Parried the blow and drove him from the sand.  
+Their shields collided, bronze on bronze so loud,  
+The sound like thunder echoed through the crowd.  
 
-Men fell like leaves upon the autumn’s gust,
-Their lifeblood mingled with the sand and dust.
-The Greeks, though fierce, found Troy’s defense was hard,
-For Hector’s hand did guard the city’s yard.
-Yet still they pressed, with Diomedes’ might,
-And Menelaus, eager for the fight.
+Men fell like leaves upon the autumn’s gust,  
+Their lifeblood mingled with the sand and dust.  
+The Greeks, though fierce, found Troy’s defense was hard,  
+For Hector’s hand did guard the city’s yard.  
+Yet still they pressed, with Diomedes’ might,  
+And Menelaus, eager for the fight.  
 
-The chariots raced across the bloodied field,
-With spears aloft and swords that none would yield.
-Odysseus, though wise in thought and plan,
-Took up his spear and slew a mighty man—
-A Trojan lord whose name would fade with time,
-But then was known as noble in his prime.
+The chariots raced across the bloodied field,  
+With spears aloft and swords that none would yield.  
+Odysseus, though wise in thought and plan,  
+Took up his spear and slew a mighty man—  
+A Trojan lord whose name would fade with time,  
+But then was known as noble in his prime.  
 
-And so the battle raged, with blood and tears,
-As war’s first song rang loud upon their ears.
-The gods above watched from their thrones of gold,
-For now the war had truly taken hold.
+And so the battle raged, with blood and tears,  
+As war’s first song rang loud upon their ears.  
+The gods above watched from their thrones of gold,  
+For now the war had truly taken hold.  
 
 **Book X: The Death of Protesilaus
 
-Among the brave ranks, one stood proud and tall,  
+Among the brave ranks, one stood proud and tall,    
 Protesilaus, destined to fall.  
 The first to leap forth from the ships on the sand,  
 A hero, a warrior, with fate in his hand.  
 He rushed toward the gates, his heart full of fire,  
-Determined to face every threat and desire.
+Determined to face every threat and desire.  
 
 But Hector, fierce prince, with a glint in his eye,  
 Prepared for the duel, where the bold often die.  
 They clashed with the might of two titans of old,  
 Spear met with shield, each warrior bold.  
 But the Fates had decreed that the end was nigh,  
-And Protesilaus fell, beneath Troy’s dark sky.
+And Protesilaus fell, beneath Troy’s dark sky.  
 
 The Greeks mourned their hero, their hearts filled with dread,  
 For the blood of their comrade was a river now fed.  
@@ -814,16 +814,16 @@ And Greek unity was a fragile heart.
 
 **Epilogue: The Loom of Fate**
 
-From high Olympus’ peaks the thunder rolled,
-And Zeus beheld what mortal hearts had told.
-The war he willed now smoldered in its prime,
-Its end unseen, yet written deep in time.
-The Fates, their shuttles weaving slow and sure,
-Prepared the thread of wrath the world must endure.
+From high Olympus’ peaks the thunder rolled,  
+And Zeus beheld what mortal hearts had told.  
+The war he willed now smoldered in its prime,  
+Its end unseen, yet written deep in time.  
+The Fates, their shuttles weaving slow and sure,  
+Prepared the thread of wrath the world must endure.  
 
-For soon would rise the song the Muses keep—
-Of rage, of loss, of kings who sow and reap.
-But for this tale, the threads are bound complete,
-The gods withdraw, the mortal pulse grows sweet.
-The sea winds sigh, the fires of Troy still burn,
-And to the Iliad’s dawn the ages turn.
+For soon would rise the song the Muses keep—  
+Of rage, of loss, of kings who sow and reap.  
+But for this tale, the threads are bound complete,  
+The gods withdraw, the mortal pulse grows sweet.  
+The sea winds sigh, the fires of Troy still burn,  
+And to the Iliad’s dawn the ages turn.  
