@@ -1,8 +1,9 @@
 ---
 title = "The Moirad, A Song of the Fates and The Trojan War"
 ---
+![Trojan War](./images/trojan-war-scene-1.png)
 # *The Moirad, A Song of the Fates and The Trojan War*
-
+![Moirad logo](./images/moirad.png) 
 **Book I: The Council of Zeus**
 
 In bright Olympus, crowned by heavens high,  
