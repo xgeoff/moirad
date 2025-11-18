@@ -3,6 +3,7 @@ title = "The Moirad, A Song of the Fates and The Trojan War"
 ---
 ![Trojan War](./images/trojan-war-scene-1.png)
 # *The Moirad, A Song of the Fates and The Trojan War*
+## Prequel to Homer's Iliad
 ![Moirad logo](./images/moirad.png) 
 **Book I: The Council of Zeus**
 
